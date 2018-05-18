@@ -1,4 +1,4 @@
-## Vibracões Mecânicas
+## Vibrações Mecânicas
 ### Aulas de vibrações mecânicas
 
 
